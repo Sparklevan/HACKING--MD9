@@ -69,6 +69,6 @@ Profitez des fonctionnalités variées du Bot WhatsApp HACKING pour améliorer v
 
 ## Developpeur :
  
-  [**Thomas**](https://chat.whatsapp.com/CmrAOrFSBMi4eXW8xL5UHZ)<br>
-  [**᚛MD-HACKER ᚜**](https://wa.me/22588697148)
+  [**EVAN**]()<br>
+  [**᚛MD-EVAN ᚜**](https://wa.me/2250171967343)
  
